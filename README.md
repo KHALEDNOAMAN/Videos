@@ -19,4 +19,6 @@ Why is it important?
 
 [MathStats](https://online.stat.psu.edu/stat415/)
 
+My grades (6th - master's)
+
 There will never ever be another modpack like GTNH (Inspired by EmpLemon)
